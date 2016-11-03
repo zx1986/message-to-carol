@@ -1,7 +1,7 @@
 Message to Carol
 ================
 
-http://zx1986.github.io/message-to-carol
+The Text Messages in iPhone.
 
 Inspired by
 
